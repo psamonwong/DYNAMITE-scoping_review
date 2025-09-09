@@ -1,0 +1,1 @@
+The repository is for a scoping reivew protocol titled "Surveillance strategies for trombiculid mite populations to support scrub typhus risk modelling: A scoping review protocol" Wongnak P. et al (2025).
